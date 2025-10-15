@@ -24,4 +24,4 @@
 <!-- Proudly created with GPRM ( https://gprm.itsvg.in ) -->
 
 ### ✍️ Fun Quote:
-Da funkback to the funk.C'mon
+Da funk back to the funk.C'mon
